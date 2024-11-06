@@ -1,1 +1,1 @@
-Projekt aines Andmea- ja ärinalüüs, sem 1 2024
+## Projekt aines Andme- ja ärinalüüs, sem 1 2024
